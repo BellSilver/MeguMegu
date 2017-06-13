@@ -9,7 +9,7 @@ Because we love Megu
 And we need the place to share the Megu art 
 
 # Who is Katou Megumi?
-She's is main heroine for Saenai Heroine no Sodatekat (Saekano) anime series
+She's is main heroine from Saenai Heroine no Sodatekat (Saekano) anime series
 
 # Why we love Megu?
 She's is perfect waifu, That's it 
