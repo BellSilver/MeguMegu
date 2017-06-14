@@ -1,5 +1,4 @@
-35.7172359,139.7140098
-coordinate of the Holy Hill
+35.7172359,139.7140098 - the Holy Hill
 35.7321039,139.5612482 - Komeda Coffee shop
 35.8103561,139.3788431 - Rokutenba Mall
 35.7154794,139.7037455 - Tokyo Animation Collage
