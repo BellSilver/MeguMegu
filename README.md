@@ -1,5 +1,5 @@
 # MeguMegu
-This is Repository of Katou Megumi Art 
+This is Repository of everything related to Katou Megumi
 
 You can find some nice art here
 
